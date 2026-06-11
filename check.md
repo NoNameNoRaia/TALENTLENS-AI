@@ -1,1 +1,0 @@
-test đường dây nóng fuck q
